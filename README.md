@@ -4,3 +4,5 @@ in progress, part of exercise for digital humanities course at KU
 signe is researching about the possibilities of purchasing the frogcottage
 >signe is looking forward to purchasing the frogcottage
 # 🐸🐸🐸🛖🪨🌷🫖
+### Go to Signes gofundme page
+#### help her buy the frogcottage<333
